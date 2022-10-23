@@ -5,4 +5,4 @@
 
 Note : pdf is on the way
 
-https://docs.google.com/document/d/1RYbC2ooiROHessSAp_GB7GpwJVjd0T4rDOyEhG7v1b8/edit?usp=sharing
+https://1drv.ms/w/s!Al01B8rax4xigQqCnf4-HgO2r83_?e=PNLvLr
